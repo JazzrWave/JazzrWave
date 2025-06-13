@@ -1,4 +1,4 @@
- 🧡 The Grif to my Caboose  
+<small>🧡 The Grif to my Caboose  
 mwahhh i loveee uu planting a big kiss on ur helmet  
 ---
 [pilot/griff](https://gr1ff.straw.page/)
@@ -7,7 +7,7 @@ mwahhh i loveee uu planting a big kiss on ur helmet
 </p>
 ---
 
- 💚 My Lovely Husband Lockdown  
+<small>💚 My Lovely Husband Lockdown  
 mwah mwahhh lovee uu lockdown mwawh i adore tyou so much <333 
 ---
 [LD](https://github.com/llock-e)
@@ -16,7 +16,7 @@ mwah mwahhh lovee uu lockdown mwawh i adore tyou so much <333
 </p>
 ---
 
- 🖤🤍 Two Time / Sebastian  
+<small>🖤🤍 Two Time / Sebastian  
 We love you!!! Heavy shoutout to them cs their awsome 
 ---
 [Ttwwoo](https://wilt3dsp4wnz.straw.page/)
@@ -25,7 +25,7 @@ We love you!!! Heavy shoutout to them cs their awsome
 </p>
 ---
 
- 💛 Dewfreak   
+<small>💛 Dewfreak   
 Love u/p also go get some sleep n' take care of urself... mwah!/p 
 ---
 [dewdrop](https://www.patreon.com/c/heavyhook/about)
