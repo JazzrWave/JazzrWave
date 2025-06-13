@@ -1,11 +1,11 @@
 [ the grif to my caboose, mwahhh i loveee uu planting a big kiss on ur helmet ](https://gr1ff.straw.page/)
-[grrifff](https://tenor.com/view/rvb-grif-redvsblue-your-face-is-immature-gif-8576424)
+! [grrifff](https://tenor.com/view/rvb-grif-redvsblue-your-face-is-immature-gif-8576424)
 
 [ My beautiful lovely husband/conjux who i admire entirely mwah mwwwahhh loveee uu lockdown mwawh ](https://github.com/llock-e)  
-[I LOVE YOU]((https://tenor.com/view/lockdown-youre-good-good-transformers-transformers-animated-gif-23591249))
+! [I LOVE YOU]((https://tenor.com/view/lockdown-youre-good-good-transformers-transformers-animated-gif-23591249))
 
 [ hheh, two time/sebastian, we love you we love you!!!/p heavy shoutout to them cs their awsome ](https://wilt3dsp4wnz.straw.page/)
-[ttwo]([https://tenor.com/view/two-time-forsaken-roblox-two-time-forsaken-stab-gif-3509006218969806432)
+! [ttwo]([https://tenor.com/view/two-time-forsaken-roblox-two-time-forsaken-stab-gif-3509006218969806432)
 
 [ Dewfreak whos super cool, love u/p/p also go get some sleep n' make sure to take care of urself...mwah!/p ](https://www.patreon.com/c/heavyhook/about)
-[ttwo](https://tenor.com/view/pure-vanilla-cookie-gif-5474525595957961390)
+! [ttwo](https://tenor.com/view/pure-vanilla-cookie-gif-5474525595957961390)
