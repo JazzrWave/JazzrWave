@@ -1,11 +1,27 @@
-[ the grif to my caboose, mwahhh i loveee uu planting a big kiss on ur helmet ](https://gr1ff.straw.page/)
-! [grrifff](https://tenor.com/view/rvb-grif-redvsblue-your-face-is-immature-gif-8576424)
+# 🧡 The Grif to my Caboose  
+mwahhh i loveee uu planting a big kiss on ur helmet  
+<p align="center">
+ <img src="https://media1.tenor.com/m/MySYOwQdBPsAAAAC/rvb-grif.gif" width="250">
+</p>
+---
 
-[ My beautiful lovely husband/conjux who i admire entirely mwah mwwwahhh loveee uu lockdown mwawh ](https://github.com/llock-e)  
-! [I LOVE YOU]((https://tenor.com/view/lockdown-youre-good-good-transformers-transformers-animated-gif-23591249))
+# 💚 My Lovely Husband Lockdown  
+mwah mwahhh lovee uu lockdown mwawh i adore tyou so much <333  
+<p align="center">
+ <img src="https://media1.tenor.com/m/7Q-4A8tqaaYAAAAC/lockdown-youre-good.gif" width="250">
+</p>
+---
 
-[ hheh, two time/sebastian, we love you we love you!!!/p heavy shoutout to them cs their awsome ](https://wilt3dsp4wnz.straw.page/)
-! [ttwo]([https://tenor.com/view/two-time-forsaken-roblox-two-time-forsaken-stab-gif-3509006218969806432)
+# 🖤🤍 Two Time / Sebastian  
+We love you!!! Heavy shoutout to them cs their awsome  
+<p align="center">
+ <img src="https://media1.tenor.com/m/MLJ-kIxU9mAAAAAC/two-time-forsaken.gif" width="250">
+</p>
+---
 
-[ Dewfreak whos super cool, love u/p/p also go get some sleep n' make sure to take care of urself...mwah!/p ](https://www.patreon.com/c/heavyhook/about)
-! [ttwo](https://tenor.com/view/pure-vanilla-cookie-gif-5474525595957961390)
+# 💛 Dewfreak   
+Love u/p also go get some sleep n' take care of urself... mwah!/p 
+<p align="center">
+ <img src="https://media.tenor.com/3h_PZTNDlY8AAAAi/cookie-run-sticker.gif" width="250">
+</p>
+---
