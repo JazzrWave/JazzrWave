@@ -17,7 +17,7 @@ mwah mwahhh lovee uu lockdown mwawh i adore tyou so much <333
  🖤🤍 Two Time / Sebastian  
 We love you!!! Heavy shoutout to them cs their awsome 
 
-✧ [Ttwwoo](https://wilt3dsp4wnz.straw.page/) ✧
+✧ [Ttwwoo](https://tr4pped-h3art.straw.page/) ✧
  <img src="https://media1.tenor.com/m/MLJ-kIxU9mAAAAAC/two-time-forsaken.gif" width="140">
  
 ---
